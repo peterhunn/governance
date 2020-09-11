@@ -35,7 +35,7 @@ iii. overseeing all Project business and marketing matters;
 
 iv. administering, provisioning, and managing AP involvement in external projects; 
 
-v. adopt and maintain policies or rules and procedures for AP (subject to LF approval); 
+v. adopting and maintaining policies or rules and procedures for AP (subject to LF approval); 
 
 vi. working with the TSC on supporting, and administering the technical direction of the project;
 
